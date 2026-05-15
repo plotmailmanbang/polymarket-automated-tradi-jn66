@@ -1,4 +1,4 @@
-# 
+# Enhance your Polymarket trading with quantitative Polymarket Automation Script | leverage-trading + volatility-detection, the #1 automation-script. Includes leverage-trading and
 
 
 
